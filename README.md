@@ -1,8 +1,8 @@
-##Welcome to the Ooba Job Application
+## Welcome to the Ooba Job Application
 
 Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would have to maintain good customer relationships, generate new leads and provide appropriate product presentations. Candidates for this position should prioritise customer care and acquisition of new business.
 
-###Salesperson Duties and Responsibilities
+### Salesperson Duties and Responsibilities
 
 - Generate new leads
 - Schedule customer visits
@@ -13,7 +13,7 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Source and develop client referrals
 - Track personal appointments, status reports, and sales • Meet or exceed monthly sales goals
 
-###Salesperson Requirements and Qualifications
+### Salesperson Requirements and Qualifications
 
 - Excellent customer service and communication skills, both verbal and written
 - Preferably be bilingual and fluency in English is essential
@@ -22,7 +22,7 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Proven track record in the sales environment
 - Expert in time management and personal organisation
 
-###Added Requirements
+### Added Requirements
 
 - Computer knowledge
 - Own transport
@@ -30,7 +30,7 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Own cellphone
 - Must reside in the Lower South Coast area
 
-###Remuneration
+### Remuneration
 
 - Basic monthly salary
 - Commissions on home loans secured (payable on registration)
