@@ -1,37 +1,43 @@
-## Welcome to GitHub Pages
+##Welcome to the Ooba Job Application
 
-You can use the [editor on GitHub](https://github.com/Jessica765/oobaJob/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would have to maintain good customer relationships, generate new leads and provide appropriate product presentations. Candidates for this position should prioritise customer care and acquisition of new business.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+###Salesperson Duties and Responsibilities
 
-### Markdown
+- Generate new leads
+- Schedule customer visits
+- Promote products to new and existing customers
+- Schedule Presentations to current and new customer base
+- Develop strategies to increase customer base
+- Maintain positive business and customer relationships to prolong customer lifetime value
+- Source and develop client referrals
+- Track personal appointments, status reports, and sales • Meet or exceed monthly sales goals
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+###Salesperson Requirements and Qualifications
 
-```markdown
-Syntax highlighted code block
+- Excellent customer service and communication skills, both verbal and written
+- Preferably be bilingual and fluency in English is essential
+- Aptitude for negotiation and persuasion
+- Highly motivated, determined, and target driven
+- Proven track record in the sales environment
+- Expert in time management and personal organisation
 
-# Header 1
-## Header 2
-### Header 3
+###Added Requirements
 
-- Bulleted
-- List
+- Computer knowledge
+- Own transport
+- Own computer - preferably laptop
+- Own cellphone
+- Must reside in the Lower South Coast area
 
-1. Numbered
-2. List
+###Remuneration
 
-**Bold** and _Italic_ and `Code` text
+- Basic monthly salary
+- Commissions on home loans secured (payable on registration)
+- Petrol allowance
+- Cellphone allowance
 
-[Link](url) and ![Image](src)
-```
+*Applications including an updated CV should be submitted using this [link](https://docs.google.com/forms/d/e/1FAIpQLSfrEe0j9LWKqDwDV7jcKNoprAfm7RLD6rLStYc8IomxGErOWg/viewform?usp=sf_link) or emailed to [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com) by 26 November 2021*
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Jessica765/oobaJob/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+*Applicants whom have not been contacted by 6 December 2021 should consider their applications unsuccessful.*
+ 
