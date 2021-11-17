@@ -11,7 +11,8 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Develop strategies to increase customer base
 - Maintain positive business and customer relationships to prolong customer lifetime value
 - Source and develop client referrals
-- Track personal appointments, status reports, and sales • Meet or exceed monthly sales goals
+- Track personal appointments, status reports, and sales
+- Meet or exceed monthly sales goals
 
 ### Salesperson Requirements and Qualifications
 
@@ -38,7 +39,7 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Cellphone allowance
 
 
-*Applications including an updated CV should be submitted by emailing [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com?subject=ooba Job Application) by 26 November 2021*
+**Applications including an updated CV should be submitted by emailing [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com?subject=ooba Job Application) by 26 November 2021**
 
 *Applicants whom have not been contacted by 6 December 2021 should consider their applications unsuccessful.*
  
