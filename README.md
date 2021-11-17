@@ -37,7 +37,7 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Petrol allowance
 - Cellphone allowance
 
-*Applications including an updated CV should be submitted using this [link](https://docs.google.com/forms/d/e/1FAIpQLSfrEe0j9LWKqDwDV7jcKNoprAfm7RLD6rLStYc8IomxGErOWg/viewform?usp=sf_link) or emailed to [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com) by 26 November 2021*
+*Applications including an updated CV should be submitted using this [link](https://forms.gle/tqKK2MkiN3F2Z34q8) or emailed to [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com) by 26 November 2021*
 
 *Applicants whom have not been contacted by 6 December 2021 should consider their applications unsuccessful.*
  
