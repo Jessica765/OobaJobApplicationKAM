@@ -1,4 +1,4 @@
-## Welcome to the ooba Job Application
+# Welcome to the ooba Job Application
 
 Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would have to maintain good customer relationships, generate new leads and provide appropriate product presentations. Candidates for this position should prioritise customer care and acquisition of new business.
 
@@ -37,7 +37,8 @@ Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home
 - Petrol allowance
 - Cellphone allowance
 
-*Applications including an updated CV should be submitted using this [link](https://forms.gle/tqKK2MkiN3F2Z34q8) or emailed to [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com) by 26 November 2021*
+
+*Applications including an updated CV should be submitted by emailing [mikeharrison@iafrica.com](mailto: mikeharrison@iafrica.com) by 26 November 2021*
 
 *Applicants whom have not been contacted by 6 December 2021 should consider their applications unsuccessful.*
  
