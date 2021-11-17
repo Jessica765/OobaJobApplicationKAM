@@ -1,4 +1,4 @@
-## Welcome to the Ooba Job Application
+## Welcome to the ooba Job Application
 
 Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would have to maintain good customer relationships, generate new leads and provide appropriate product presentations. Candidates for this position should prioritise customer care and acquisition of new business.
 
