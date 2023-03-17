@@ -27,7 +27,7 @@ them
 - Resides in the Lower South Coast area (Preferable)
 
 
-*Applications including an updated CV should be submitted by emailing [debraann.harrison@ooba.co.za](mailto: debraann.harrison@ooba.co.za?subject=ooba Job Application - KAM) by 14 April 2023*
+*Applications including an updated CV should be submitted by emailing [debraann.harrison@ooba.co.za](mailto: debraann.harrison@ooba.co.za?subject=ooba Job Application - KAM) by 14 April 2023.*
 
 *Applicants whom have not been contacted by 1 May 2023 should consider their applications unsuccessful.*
  
