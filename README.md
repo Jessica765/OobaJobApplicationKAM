@@ -1,5 +1,5 @@
 
-Seeking a bubbly, confident, well presented PR/Salesperson for the Property/Home Loan Finance Industry. The purpose of the role is to sell ooba's customer value proposition by hooking the prospect into a matching product opportunity and persuade home buyers to partner with ooba to secure their home finance.
+Seeking a bubbly, confident, well presented Homeloans Sales Consultant for the Property/Home Loan Finance Industry. The purpose of the role is to sell ooba's customer value proposition by hooking the prospect into a matching product opportunity and persuade home buyers to partner with ooba to secure their home finance.
 
 ### Duties and Responsibilities
 
